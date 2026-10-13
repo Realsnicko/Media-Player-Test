@@ -1,0 +1,1 @@
+**So, basically, uhh... im not good at professional speak when im tired... its 6am i havent slept in like 14h, uhh i decided i wanna overthrow spotify..? Idk why but I fuckin hate spotify so... yeah... thats what this is gonna be. Eventually. When im motivated. Hopefully.**
